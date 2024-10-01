@@ -11,3 +11,14 @@ By joining JSS Connect, you become part of a thriving community that values life
 **3.Community Engagement**: Stay informed about the latest news, updates, and achievements from your alma mater and fellow alumni.
 
 **4.Resource Sharing**: Access a wealth of resources, including job postings, industry insights, and educational materials to support your continuous growth and development.
+
+![image](https://github.com/user-attachments/assets/6bcbe839-b92f-418f-8fef-58ff09151d58)
+
+![image](https://github.com/user-attachments/assets/f03bb9f0-783b-4042-8c85-c056f054ee7b)
+
+![image](https://github.com/user-attachments/assets/21fcc1ea-96c8-4b6b-90c2-fb74df609d1c)
+
+![image](https://github.com/user-attachments/assets/0d5cbdfd-0937-4066-bdd0-4595cd401d1a)
+
+![image](https://github.com/user-attachments/assets/6bf1483c-32e5-4513-95bd-b7156f72d7fe)
+
