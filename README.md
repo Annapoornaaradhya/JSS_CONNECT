@@ -6,7 +6,10 @@ JSS Connect is more than just a platform—it's a bridge between aspirations and
 
 ## 🌟 Why JSS Connect?
 
-🔗 Build lifelong professional connections with alumni 🤝💡 Gain insights from industry leaders and experienced mentors 🎯🚀 Unlock job opportunities & career guidance with ease 💼🌍 Seamless LinkedIn integration to expand your network effortlessly 🌐
+- 🔗 Build lifelong professional connections with alumni 🤝
+- 💡Gain insights from industry leaders and experienced mentors 🎯
+-  🚀 Unlock job opportunities & career guidance with ease 💼
+-  🌍 Seamless LinkedIn integration to expand your network effortlessly 🌐
 
 ## 📸Screenshots
 
