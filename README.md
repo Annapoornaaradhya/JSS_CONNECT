@@ -2,6 +2,8 @@
 
 ### Where Students Meet Alumni, and Careers Take Flight! 🎓✨
 
+[![DOI](https://zenodo.org/badge/866000566.svg)](https://doi.org/10.5281/zenodo.15275386)
+
 JSS Connect is more than just a platform—it's a bridge between aspirations and achievements! Designed to seamlessly connect students with alumni, it fosters mentorship, career growth, and placement support through meaningful professional relationships.
 
 ## 🌟 Why JSS Connect?
